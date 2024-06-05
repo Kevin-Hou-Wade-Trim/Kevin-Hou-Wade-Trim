@@ -2,4 +2,4 @@ Kevin Hou
 
 yhou@wadetrim.com
 
-AI Intern, Wade Trim Pittsburgh Office, Summer 2024
+AI Intern, Wade Trim Pittsburgh Office, Summer 2024.
